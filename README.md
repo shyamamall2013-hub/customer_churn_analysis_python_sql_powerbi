@@ -131,9 +131,9 @@ Author
 
 Shyama Mall
 
-GitHub: Your GitHub Profile
+LinkedIn: www.linkedin.com/in/contactshyamamall
 
-LinkedIn: Your LinkedIn Profile
+GitHub: 
 
 
     
